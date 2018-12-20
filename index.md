@@ -1,5 +1,10 @@
 #### 2018年12月19日
 
+- [中國用不着窗口 - 梁文道](https://ms64mb.github.io/words/20181220-1中國用不着窗口)
+- [香港失掉独立关税区地位的可能性 - BBC 中文](https://ms64mb.github.io/words/20181220-2香港失掉独立关税区地位的可能性)
+
+#### 2018年12月19日
+
 - [关于中国审查版搜索引擎 - iYouPort](https://ms64mb.github.io/words/20181219-1中国版搜索引擎)
 - [Google 终止一项关乎中国搜寻引擎开发的数据分析工作](https://ms64mb.github.io/words/20181219-2谷歌终止265)
 
