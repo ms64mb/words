@@ -1,3 +1,10 @@
+#### 2018年12月26日
+
+- [Statement on Wang Quanzhang’s indictment, by Peter Dahlin - RSDL Monitor](https://ms64mb.github.io/words/20181226-1王全璋)
+- [律师王全璋“颠覆”案开庭 - 纽约时报中文网](https://ms64mb.github.io/words/20181226-2王全璋-纽约时报)
+- [与彼得∙达林的对话：一个瑞典NGO工作者如何危害了中国的国家安全](https://ms64mb.github.io/words/20181226-3与彼得∙达林的对话)
+- [丈夫案件开庭审理，妻子被控制不让旁听 - 李文足 twitter](https://ms64mb.github.io/words/20181226-4李文足)
+
 #### 2018年12月25日
 
 - [刘强东的“正义”，“米兔”的挫败？ - FT中文网](https://ms64mb.github.io/words/20181225-1刘强东的正义)
