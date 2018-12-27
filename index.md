@@ -1,3 +1,9 @@
+#### 2018年12月27日
+
+- [有哪些较少人知道或比较有趣的法律常识/冷知识？ - 知乎](https://ms64mb.github.io/words/20181227-1有哪些较少人知道或比较有趣的法律常识)
+- [房間裏的一切 - 陶傑](https://ms64mb.github.io/words/20181227-2房间里的一切)
+- [人民币贬值、楼价高涨：消费降级中产失去的优质生活 - BBC 中文](https://ms64mb.github.io/words/20181227-3消费降级)
+
 #### 2018年12月26日
 
 - [Statement on Wang Quanzhang’s indictment, by Peter Dahlin - RSDL Monitor](https://ms64mb.github.io/words/20181226-1王全璋)
