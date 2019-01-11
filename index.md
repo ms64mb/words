@@ -1,3 +1,6 @@
+#### 2019年1月11日
+- [深层政治：Facebook金字塔的人形肌理 - iYouPort](https://ms64mb.github.io/words/20190111-1Facebook金字塔的人形肌理)
+
 #### 2019年1月10日
 - [“千亿矿权案”现阶段分析 - @lifetimeuscn](https://ms64mb.github.io/words/20190110-1千亿矿产)
 - [鐵腕下的中國足球，與職業化背道狂馳 - 端傳媒](https://ms64mb.github.io/words/20190110-2鐵腕下的中國足球)
