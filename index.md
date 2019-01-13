@@ -1,4 +1,9 @@
-#### 2019年1月11日
+#### 2019年1月12日
+- [中国刺探香港国际媒体 - Human Rights Watch](https://ms64mb.github.io/words/20190112-1中国刺探香港国际媒体)
+- [江蘇疫苗過期連環爆，百餘名兒童接種後不適 - 端傳媒](https://ms64mb.github.io/words/20190112-2江蘇疫苗過期連環爆)
+- [哈维尔：“生活在真实中” - 东方历史评论](https://ms64mb.github.io/words/20190112-3哈维尔生活在真实中)
+
+
 - [深层政治：Facebook金字塔的人形肌理 - iYouPort](https://ms64mb.github.io/words/20190111-1Facebook金字塔的人形肌理)
 - [中国VPN用户被罚 “翻墙”怎么会违法 - BBC News 中文](https://ms64mb.github.io/words/20190111-2中国VPN用户被罚)
 - [网络审查再升级：中国推特用户遭政府盘查或拘留 - 纽约时报中文网](https://ms64mb.github.io/words/20190111-3网络审查再升级)
