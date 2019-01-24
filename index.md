@@ -1,4 +1,12 @@
-#### 2019年1月22日
+#### 2019年1月24日
+- [现代新闻之愚蠢 (2) — 四种最致命的倾向性 – iYouPort](https://ms64mb.github.io/words/20190124-1现代新闻之愚蠢)
+- [穿越寒冬的独行者 - HuoJu's BLOG](https://ms64mb.github.io/words/20190124-2穿越寒冬的独行者)
+- [審查面紗下的大國形象：2018年被微信刪掉的十條新聞 - 端傳媒](https://ms64mb.github.io/words/20190124-3審查面紗下的大國形象)
+- [中国疑似屏蔽微软搜索引擎必应 - 纽约时报中文网](https://ms64mb.github.io/words/20190124-4屏蔽微软搜索引擎必应)
+- [孟晚舟：困在镀金笼子里的华为高管 - BBC News 中文](https://ms64mb.github.io/words/20190124-5困在镀金笼子里的华为高管)
+- [惩罚加拿大完整指南 - HuoJu's BLOG](https://ms64mb.github.io/words/20190124-6惩罚加拿大完整指南)
+
+#### 2019年1月23日
 - [现代新闻之愚蠢并非意识形态倾向性问题 (1) – iYouPort](https://ms64mb.github.io/words/20190123-1现代新闻一)
 - [台灣網友毆打肉圓家暴男，「私刑正義」是否正義？ - 端傳媒](https://ms64mb.github.io/words/20190123-2私刑正義是否正義)
 - [经济转型洪流下，奋力求生的中国企业家 - 纽约时报中文网](https://ms64mb.github.io/words/20190123-3奋力求生的中国企业家)
