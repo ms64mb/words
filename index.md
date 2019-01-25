@@ -1,3 +1,7 @@
+#### 2019年1月25日
+- [现代新闻之愚蠢 (3) — 深度剖析四种致命倾向性，及其政治代价 – iYouPort](https://ms64mb.github.io/words/20190125-1现代新闻之愚蠢三)
+- [百度现象折射中国互联网：牢笼又是丛林 - BBC News 中文](https://ms64mb.github.io/words/20190125-2百度现象)
+
 #### 2019年1月24日
 - [现代新闻之愚蠢 (2) — 四种最致命的倾向性 – iYouPort](https://ms64mb.github.io/words/20190124-1现代新闻之愚蠢)
 - [穿越寒冬的独行者 - HuoJu's BLOG](https://ms64mb.github.io/words/20190124-2穿越寒冬的独行者)
