@@ -1,3 +1,9 @@
+#### 2019年1月26日
+- [微软 Bing 搜索断线又复活背后玄机引发臆测 - BBC News 中文](https://ms64mb.github.io/words/20190126-1断线又复活)
+- [微信 “老赖地图”：中国用新技术追债与隐私争议 - BBC News 中文](https://ms64mb.github.io/words/20190126-2老赖地图)
+- [Beijing tells cadres to prepare for the worst amid uncertainties of its high-stakes trade war with the US - South China Morning Post](https://ms64mb.github.io/words/20190126-3做好最坏准备)
+> **「做好最坏准备」——时隔许多许多年，终于又见战争边缘政策**
+
 #### 2019年1月25日
 - [现代新闻之愚蠢 (3) — 深度剖析四种致命倾向性，及其政治代价 – iYouPort](https://ms64mb.github.io/words/20190125-1现代新闻之愚蠢三)
 - [百度现象折射中国互联网：牢笼又是丛林 - BBC News 中文](https://ms64mb.github.io/words/20190125-2百度现象)
