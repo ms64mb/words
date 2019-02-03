@@ -1,4 +1,8 @@
 #### 2019年2月1日
+- [染香故事 – 文三娃](https://ms64mb.github.io/words/20190202-1染香故事)
+- [观点：华为案是中国领导人处理外部危机的试金石 - BBC News 中文](https://ms64mb.github.io/words/20190202-2华为案是中国领导人处理外部危机的试金石)
+
+#### 2019年2月1日
 - [中共政治安全面临的九大挑战 - BBC News 中文](https://ms64mb.github.io/words/20190201-1中共政治安全面临的九大挑战)
 - [中美贸易战会否将中国推向“失落的二十年”？ - BBC News 中文](https://ms64mb.github.io/words/20190201-2失落的二十年)
 
